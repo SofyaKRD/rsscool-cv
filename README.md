@@ -1,1 +1,0 @@
-# rsscool-cv
